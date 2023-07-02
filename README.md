@@ -52,4 +52,6 @@
 
 <u>Be sure to reach out to my assistant Chester, he's always happy to help! 🐶 </u>
 <br>
-![giphy](https://github.com/MCCRACK3N/MCCRACK3N/assets/119984266/81d06d27-5ae1-41ad-8ea1-df544aecb63d)
+
+![giphy](https://github.com/MCCRACK3N/MCCRACK3N/assets/119984266/24514c52-2671-4cf9-8051-14860470803b)
+
